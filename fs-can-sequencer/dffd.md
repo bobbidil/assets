@@ -1,0 +1,1 @@
+Reupload, cropped to transaprent
